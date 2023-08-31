@@ -2,7 +2,7 @@
 
 永久域名 https://hj.cool
 
-官方Telegram 50万大群
+官方Telegram 50万人大群
 https://t.me/hjcoolhj
 
 
