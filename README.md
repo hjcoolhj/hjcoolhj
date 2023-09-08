@@ -5,4 +5,6 @@
 官方Telegram 50万人大群
 https://t.me/hjcoolhj
 
+联系邮箱 hjcool666@gmail.com
+
 
