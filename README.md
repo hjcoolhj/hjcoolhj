@@ -2,7 +2,8 @@
 
 永久域名 https://hj.cool
 
-官方Telegram 50万人大群
+官方Telegram 50万人超大频道
 https://t.me/hjcoolhj
 
-联系邮箱 hjcool666@gmail.com
+当前国内免fan墙地址
+https://haijiaoai1.com
